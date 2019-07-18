@@ -1,2 +1,3 @@
 # readme-venky
 All about me...
+Hey guys, I'm very good at time management skills. Actually i have cracked each and every interview i have attended so far.
